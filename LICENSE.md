@@ -1,4 +1,4 @@
-#  
+#  Smart brainrot evolution script is the best brainrot evolution script with auto-heal and private server access. Safe, reliable, and optimized for maximum performance.
 
 
 
